@@ -4,4 +4,4 @@
 ‎ 
 ‎ 
 
-<p align="center"><sub> <a href="https://caustics.straw.page"> sp᲼</a></sub>
+<p align="center"><sub> <a href="https://caustics.straw.page"> sp</a></sub>
